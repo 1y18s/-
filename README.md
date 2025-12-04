@@ -1,1 +1,1 @@
-![alt text for the GIF](https://i.ibb.co/Zztr2tLS/IMG-5872.gif)
+![alt text for the GIF](https://camo.githubusercontent.com/08e03f45b08767ae6ecd44221bd7023f9b0defc20ee3f0401cdef20059f5d92d/68747470733a2f2f692e6962622e636f2f5a7a747232744c532f494d472d353837322e676966)
